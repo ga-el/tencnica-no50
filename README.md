@@ -1,1 +1,0 @@
-# tencnica-no50
